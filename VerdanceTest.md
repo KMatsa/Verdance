@@ -1,2 +1,0 @@
-chuuuuud
-those who know
